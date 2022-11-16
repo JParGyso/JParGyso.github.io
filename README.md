@@ -2,7 +2,7 @@
 ---
 ## ***Favorite pastimes***
 
-**viewing films and Korean dramas**
+**Viewing films and Korean dramas**
 
 ![Netflix](https://cdn.pocket-lint.com/r/s/320x/assets/images/140219-tv-news-feature-netflix-tips-and-tricks-how-to-master-your-binge-watching-experience-image1-rjogeykeqs.jpg?v1)
 
@@ -10,7 +10,7 @@
 
 ![Forda sleeping man ang ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT_dhLlA7u3ySRlWRUgaYA4XMiiTgbOENqjlg&usqp=CAU)
 
-**Finding time on social medias**
+**spending time on social medias**
 
 ![Forda Tiktok](https://sf-tb-sg.ibytedtos.com/obj/eden-sg/uhtyvueh7nulogpoguhm/tiktok-icon2.png)
 
