@@ -12,7 +12,7 @@
 
 3. Spending time on social medias
 
-![Forda Tiktok](https://paradigmhq.org/wp-content/uploads/2021/07/logossss.png)
+![Forda Tiktok](https://sf-tb-sg.ibytedtos.com/obj/eden-sg/uhtyvueh7nulogpoguhm/tiktok-icon2.png)
 
 4. Eating 
 
