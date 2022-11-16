@@ -1,1 +1,3 @@
-# JParGyso.github.io
+# Welcome to JParGyso.github.io
+---
+My Favorite Stuff
