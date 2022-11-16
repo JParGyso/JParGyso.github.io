@@ -12,7 +12,14 @@
 
 3. Spending time on social medias
 
-![Forda Tiktok](https://cdn.shopify.com/app-store/listing_images/0dce682fb3602fe48c948f046351cae8/icon/CM-lh970lu8CEAE=.png)
+![Forda Tiktok](https://paradigmhq.org/wp-content/uploads/2021/07/logossss.png)
 
 4. Eating 
+
 ![Forda Isaw](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSWBnk8_zHvAKa5omwFDt_BGdVa06-PVWQDWQ&usqp=CAU)
+
+5. Lastly stanning Enhypen
+Stan Enhypen syug
+
+![I'm a K-pop Ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ-1HUhOpNnA1tgb77vCaACp41lGiWriS8xPCLSCxK8eMM3KaYB7kXfA46oxhpXxVVJqeg&usqp=CAU)
+
