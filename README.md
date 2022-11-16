@@ -2,24 +2,25 @@
 ---
 ## ***Favorite pastimes***
 
-1.Viewing films and Korean dramas
+**viewing films and Korean dramas**
 
 ![Netflix](https://cdn.pocket-lint.com/r/s/320x/assets/images/140219-tv-news-feature-netflix-tips-and-tricks-how-to-master-your-binge-watching-experience-image1-rjogeykeqs.jpg?v1)
 
-2. Sleeping
+**Sleeping**
 
 ![Forda sleeping man ang ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT_dhLlA7u3ySRlWRUgaYA4XMiiTgbOENqjlg&usqp=CAU)
 
-3. Spending time on social medias
+**Finding time on social medias**
 
 ![Forda Tiktok](https://sf-tb-sg.ibytedtos.com/obj/eden-sg/uhtyvueh7nulogpoguhm/tiktok-icon2.png)
 
-4. Eating 
+**Eating** 
 
 ![Forda Isaw](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSWBnk8_zHvAKa5omwFDt_BGdVa06-PVWQDWQ&usqp=CAU)
 
-5. Lastly stanning Enhypen
-Stan Enhypen syug
+**Lastly stanning Enhypen**
+
+***Stan Enhypen syug***
 
 ![I'm a K-pop Ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ-1HUhOpNnA1tgb77vCaACp41lGiWriS8xPCLSCxK8eMM3KaYB7kXfA46oxhpXxVVJqeg&usqp=CAU)
 
