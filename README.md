@@ -1,3 +1,3 @@
 # Welcome to JParGyso.github.io
 ---
-My Favorite Stuff
+Blessed Cursed
