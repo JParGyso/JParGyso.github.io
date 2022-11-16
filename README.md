@@ -2,5 +2,4 @@
 ---
 **Hi guys Enhypen supremacy**
 
-Stan Enhypen
-![STAN ENHYPEN](https://philstarlife.s3.ap-east-1.amazonaws.com/photos/Brooke/2022/October/ENHYPEN%20rectangle%20%281%29.png)
+[Stan Enha](https://i.pinimg.com/736x/30/20/b2/3020b2ef84ee4a07ab0e3aaa7bb69a18.jpg)
