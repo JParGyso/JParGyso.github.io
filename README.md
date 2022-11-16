@@ -8,4 +8,4 @@
 
 2. Sleeping
 
-![Forda sleeping man ang ferson](https://img-cdn.inc.com/image/upload/w_1920,h_1080,c_fill/images/panoramic/GettyImages-1332616479_507251_cfbvrk.jpg))
+![Forda sleeping man ang ferson](https://img-cdn.inc.com/image/upload/w_1920,h_1080,c_fill/images/panoramic/GettyImages-1332616479_507251_cfbvrk.jpg)
