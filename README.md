@@ -12,8 +12,6 @@
 
 **spending time on social medias**
 
-![Forda Tiktok](https://sf-tb-sg.ibytedtos.com/obj/eden-sg/uhtyvueh7nulogpoguhm/tiktok-icon2.png)
-
 **Eating** 
 
 ![Forda Isaw](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSWBnk8_zHvAKa5omwFDt_BGdVa06-PVWQDWQ&usqp=CAU)
