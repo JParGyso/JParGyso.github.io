@@ -12,7 +12,8 @@
 
 **Spending time on social medias**
 
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRGCHhkp6Ou1EdbP7WVKiaZGxHYasrMQt42AHt5IADsC5JM2ErM2G3ya1hzlIVmjMFUuVw&usqp=CAU
+![Forda Tiktok](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRGCHhkp6Ou1EdbP7WVKiaZGxHYasrMQt42AHt5IADsC5JM2ErM2G3ya1hzlIVmjMFUuVw&usqp=CAU
+)
 
 **Eating** 
 
