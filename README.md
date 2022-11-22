@@ -26,4 +26,4 @@
 
 **-Seventeen**
 
-![Seventeen]([https://pbs.twimg.com/media/EuB1QVvXYAMGOKz.jpg](https://imgix.bustle.com/uploads/image/2021/5/11/651f1530-bcfc-4d59-875a-c1703ab217eb-02-0301.jpg?w=374&h=520&fit=crop&crop=focalpoint&auto=format%2Ccompress&fp-x=0.4706666666666667&fp-y=0.42953020134228187))
+![Seventeen](https://lastfm.freetls.fastly.net/i/u/770x0/b1a4de610e21279c07f713e0512f95b4.jpg)
