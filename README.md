@@ -15,10 +15,7 @@
 ![Forda Tiktok](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRGCHhkp6Ou1EdbP7WVKiaZGxHYasrMQt42AHt5IADsC5JM2ErM2G3ya1hzlIVmjMFUuVw&usqp=CAU
 )
 
-**Eating** 
-
-![Forda Isaw](https://i.insider.com/5c00467da1823008c120a4d4?width=700)
-
+## ***Favorite K-Pop Groups***
 
 
 
