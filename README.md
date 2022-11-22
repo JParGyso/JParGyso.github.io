@@ -1,4 +1,4 @@
-# Hola! Welcome to JParGyso.github.io
+# Hi! Welcome to JParGyso.github.io
 ---
 ## ***Favorite pastimes***
 
