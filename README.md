@@ -19,8 +19,11 @@
 
 
 
-** -Enhypen**
+**-Enhypen**
 
 
 ![I'm a K-pop Ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ-1HUhOpNnA1tgb77vCaACp41lGiWriS8xPCLSCxK8eMM3KaYB7kXfA46oxhpXxVVJqeg&usqp=CAU)
 
+**-Seventeen**
+
+![Seventeen]([image.jpg](https://6.viki.io/image/d2f20db9373c4eff9245e703e2cb18f6.jpeg?s=900x600&e=t))
