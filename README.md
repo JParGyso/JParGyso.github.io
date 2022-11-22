@@ -22,7 +22,7 @@
 **-Enhypen**
 
 
-![I'm a K-pop Ferson](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ-1HUhOpNnA1tgb77vCaACp41lGiWriS8xPCLSCxK8eMM3KaYB7kXfA46oxhpXxVVJqeg&usqp=CAU)
+![I'm a K-pop Ferson](https://i.scdn.co/image/ab6761610000e5ebc5443c5abc130f03b6014845)
 
 **-Seventeen**
 
