@@ -26,4 +26,4 @@
 
 **-Seventeen**
 
-![Seventeen]([image.jpg](https://6.viki.io/image/d2f20db9373c4eff9245e703e2cb18f6.jpeg?s=900x600&e=t)
+![Seventeen](https://6.viki.io/image/d2f20db9373c4eff9245e703e2cb18f6.jpeg?s=900x600&e=t)
