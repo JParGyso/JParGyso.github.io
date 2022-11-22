@@ -17,7 +17,10 @@
 
 **Eating** 
 
-![Forda Isaw](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSWBnk8_zHvAKa5omwFDt_BGdVa06-PVWQDWQ&usqp=CAU)
+![Forda Isaw]([https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSWBnk8_zHvAKa5omwFDt_BGdVa06-PVWQDWQ&usqp=CAU](https://i.insider.com/5c00467da1823008c120a4d4?width=700)
+
+
+
 
 **Lastly stanning Enhypen**
 
