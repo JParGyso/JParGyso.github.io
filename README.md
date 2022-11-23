@@ -24,7 +24,7 @@
 
 **-Seventeen**
 
-<img src="https://lastfm.freetls.fastly.net/i/u/770x0/b1a4de610e21279c07f713e0512f95b4.jpg" alt="slay" width="100">
+<img src="https://lastfm.freetls.fastly.net/i/u/770x0/b1a4de610e21279c07f713e0512f95b4.jpg" alt="slay" width="300">
 
 
 
