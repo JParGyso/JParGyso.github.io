@@ -20,7 +20,7 @@
 **-Enhypen**
 
 
-![I'm a K-pop Ferson](https://i.scdn.co/image/ab6761610000e5ebc5443c5abc130f03b6014845)
+<img src="https://i.scdn.co/image/ab6761610000e5ebc5443c5abc130f03b6014845" alt="slay" width="300">
 
 **-Seventeen**
 
